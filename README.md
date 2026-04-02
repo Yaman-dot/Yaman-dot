@@ -5,7 +5,7 @@ AI Engineer (ML Systems & Applied Research)
 Amman, Jordan
 
 📧 yamanabulaban@icloud.com  
-🔗 https://linkedin.com/in/yaman-abu-laban  
+🔗 https://www.linkedin.com/in/yamandot/
 💻 https://github.com/Yaman-dot
 
 ## About Me
